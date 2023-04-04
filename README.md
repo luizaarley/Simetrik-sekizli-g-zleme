@@ -1,0 +1,1 @@
+# Simetrik-sekizli-g-zleme
